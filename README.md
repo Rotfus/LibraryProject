@@ -1,1 +1,1 @@
-![Screenshot 2023-10-24 203059](https://github.com/Rotfus/LibraryProject/assets/140560063/3b141652-d588-4ba4-95cb-7f369c88543c)
+![1](https://github.com/Rotfus/LibraryProject/assets/140560063/e4d0a5a9-3813-44c3-a5e3-4eb5acf4ff93)
